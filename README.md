@@ -1,4 +1,6 @@
-### Hi there 👋
+Baby Grimace has been a name known by
+children from all ages since 1971. Since the birth of Grimace, Baby Grimace has appeared as a toy figure in Happy Meals making children from all over the continent extremely excited and happy. As the age of cryptocurrency mature, Baby Grimace Coin was conceived. The conception of Baby Grimace serves as a tool to help improve lives of Children from all over through our charity program. Baby Grimace is a Hyper-deflationary with static reflection that rewards holders, so more baby grimace coins are being automatically added to your wallet in every transaction.
+
 
 <!--
 **BabyGrimace/babygrimace** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
